@@ -1,0 +1,1 @@
+1 cup of water , gas is needed , maggi block , a masala packet , a medium size bowl.
